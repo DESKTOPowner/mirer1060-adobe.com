@@ -1,0 +1,1 @@
+# mirer1060-adobe.com
